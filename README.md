@@ -1,1 +1,1 @@
-# PROJEKT_DP
+Bartłomiej Marek, Michał Domaradzki
